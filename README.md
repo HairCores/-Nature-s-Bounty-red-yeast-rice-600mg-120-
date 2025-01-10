@@ -1,4 +1,4 @@
-# 美國 Nature’s Bounty 紅麴米 red yeast rice 600mg, 120 粒 (穩定血脂/膽固醇) [香港代購](https://haircores.com/）
+# 美國 Nature’s Bounty 紅麴米 red yeast rice 600mg, 120 粒 (穩定血脂/膽固醇) [香港代購](https://haircores.com/)
 
 網站：https://haircores.com/
 
